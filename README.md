@@ -11,6 +11,6 @@ Experience a sleek and intuitive design that enhances your job search journey. N
 ### Discover Top Talent
 For job seekers, showcase your skills and experience with a personalized profile. Let employers discover your potential and unlock exciting career opportunities.
 
-## Join [Your App Name] Today!
+## Join Job Board Today!
 
-Elevate your career trajectory or build your dream team with [Your App Name]: Job Board. Embark on this transformative journey now and experience a new era in job searching and hiring! 🌟
+Elevate your career trajectory or build your dream team with Job Board. Embark on this transformative journey now and experience a new era in job searching and hiring! 🌟
